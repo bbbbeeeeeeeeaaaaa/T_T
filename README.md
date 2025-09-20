@@ -1,5 +1,6 @@
 # T_T
 ﹌﹌﹌﹌﹌
+
  "i wish it wasnt so noisy.."(っ- ‸ - ς) 
                     ﹒  bea 𝗓ᶻ
                  he ◞   any    ⏾
